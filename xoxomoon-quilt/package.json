@@ -1,0 +1,9 @@
+{
+  "name": "xoxomoon-quilt",
+  "description": "XOXOMOON Web Site",
+  "version": "0.0.1",
+  "dependencies": {
+    "express": "3.x",
+    "jade": ""
+  }
+}
