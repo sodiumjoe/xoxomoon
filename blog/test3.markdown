@@ -1,6 +1,6 @@
 ---
 title: Test Three
-date: 6/19/2013
+date: 12/13/2012
 ---
 
 ![Feet](/img/DSC_4711.jpg)
