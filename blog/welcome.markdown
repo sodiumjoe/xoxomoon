@@ -1,6 +1,6 @@
 ---
 title: Hello World!
-date: 12/18/12
+date: 12/18/2012
 ---
 
 ![Zeke, swaddled](/assets/img/zeke121612.jpg)
