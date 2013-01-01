@@ -1,6 +1,6 @@
 ---
-title: Zeke Dreams of Sushi
-date: 12/27/2012
+title: Heirlooms
+date: 12/30/2012
 ---
 
 ![Hamilton](/assets/img/heirloom-joe.jpg)
