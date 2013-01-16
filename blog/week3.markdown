@@ -3,7 +3,7 @@ title: Week 3
 date: 1/6/2013
 ---
 
-![Ghost!](https://lh3.googleusercontent.com/-TwoPaaymMzI/UOowpeR_28I/AAAAAAAAJlY/y4pxF6T8IS4/s673/Zeek+Week+3+Graphic.jpg)
+![Ghost!](https://lh3.googleusercontent.com/-1tkUfKiOFrM/UPYptxHZpVI/AAAAAAAAJsM/qhLOEUALnWY/s673/Zeek+Week+3+Graphic.jpg)
 
 Zeke got a visit from two of his weird "uncles" on New Year's Eve.
 
