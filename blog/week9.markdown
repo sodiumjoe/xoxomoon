@@ -13,9 +13,9 @@ And had another visit to the pediatrician, for a checkup.
 
 ![At the pediatrician](https://lh3.googleusercontent.com/-sEkhUsQrt5Y/USHXW2izGFI/AAAAAAAAKQs/BSMsrkgYXlE/s896/P1030106.JPG)
 
-Height: 23 3/4" (77%)
-Weight: 12.02 lbs. (48%)
-Head Circumference: 16" (90%)
+    Height: 23 3/4" (77%)
+    Weight: 12.02 lbs. (48%)
+    Head Circumference: 16" (90%)
 
 And some vaccinations:
 
