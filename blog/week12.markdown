@@ -21,4 +21,8 @@ He also forgot how to roll over, which means more tummy-time:
 
 ![Tummy-time](https://lh3.googleusercontent.com/-0S4WxXZKIaY/UT7BwC9tKmI/AAAAAAAAKxc/yn4bLjTDodA/s1011/DSC_8038.JPG)
 
+But probably the biggest change of all was that it was Mama's first week back at work, and Zeke's first week staying home with PoPo Jenny:
+
+![PoPo Jenny](https://lh3.googleusercontent.com/-N5oudX9FIQU/UT7Bzm1Pc-I/AAAAAAAAKyI/27qdhY4Exlc/s1011/DSC_8061.JPG)
+
 [More photos](https://plus.google.com/photos/109995794392976695103/albums/5854329564507381105?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome).
