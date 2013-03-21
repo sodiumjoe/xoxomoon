@@ -21,6 +21,4 @@ And he remembered how to roll over:
 
 ![Rolling over](https://lh6.googleusercontent.com/-RKrXFZZ-XkE/UUqBFN_II3I/AAAAAAAALS8/xUbT-MMr0WY/s1011/DSC_8297.JPG)
 
-But probably the biggest change of all was that it was Mama's first week back at work, and Zeke's first week staying home with PoPo Jenny:
-
 [More photos](https://plus.google.com/photos/109995794392976695103/albums/5857636080417824897?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome).
