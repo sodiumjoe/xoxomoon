@@ -3,7 +3,7 @@ title: Week 13
 date: 3/20/2013
 ---
 
-![Week 13](https://lh4.googleusercontent.com/-yRhDyERzfTQ/UUqBAyXCPgI/AAAAAAAALRo/WXzkSU1KiTM/w801-h666-p-o-k/Zeek%2BWeek%2B13%2BGraphic.jpg)
+![Week 13](https://lh5.googleusercontent.com/-yRhDyERzfTQ/UUqBAyXCPgI/AAAAAAAALRo/WXzkSU1KiTM/s672/Zeek+Week+13+Graphic.jpg)
 
 Papa got sick this week.
 
