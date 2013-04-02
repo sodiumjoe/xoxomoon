@@ -19,7 +19,7 @@ And hung out under the cherry trees:
 
 Zeke hung out with his friend Milo:
 
-![Munsons](https://lh4.googleusercontent.com/-RcA1wvCflOg/UVkgYEdF_2I/AAAAAAAALhI/7FNsgQrFlKE/s1011/DSC_8571.JPG)
+![Munsons](https://lh4.googleusercontent.com/-bzRh-C8yOm8/UVkgWP6XBHI/AAAAAAAALgY/vi2DM_DM31M/s672/DSC_8534.JPG)
 
 Zeke also went to his friend Owen's first birthday party:
 
