@@ -3,7 +3,7 @@ title: Week 16
 date: 4/8/2013
 ---
 
-![Week 16](https://plus.google.com/photos/109995794392976695103/albums/5864715331082498401?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome)
+![Week 16](https://lh4.googleusercontent.com/-qmPXOxcq5SI/UWOniirNh1I/AAAAAAAALwg/IaPdGIxGj2s/s672/Zeek+Week+2+Graphic.jpg)
 
 Zeke is drooling. A lot.
 
