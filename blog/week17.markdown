@@ -3,7 +3,7 @@ title: Week 17
 date: 4/14/2013
 ---
 
-![Week 17](https://lh4.googleusercontent.com/-jtNO2o03KyI/UWuL9IkztUI/AAAAAAAAL4A/NY5G31pGGU0/s672/Zeek+Week+17+Graphic.jpg)
+![Week 17](https://lh6.googleusercontent.com/-T40A4NQMeHo/UWuPdhpjWPI/AAAAAAAAL7Q/iRZAUn2djuw/s672/Zeek+Week+17+Graphic.jpg)
 
 Zeke got his hair done did:
 
