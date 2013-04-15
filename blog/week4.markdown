@@ -15,4 +15,4 @@ We had a full house, with family visiting from Atlanta:
 
 ![Jessica](https://lh5.googleusercontent.com/-FufCYMKwDn4/UPYrJRdWZTI/AAAAAAAAJxE/eWiftUcQk1U/s1011/DSC_7091.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5833896408279472593?authkey=CI24i5asv_uQQg&sqi=104224507953462118663&sqsi=3f148359-9145-4848-aeb4-6ea74a092630).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5833896408279472593).

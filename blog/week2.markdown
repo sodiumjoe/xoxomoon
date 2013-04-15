@@ -25,4 +25,4 @@ He also met another new friend!
 
 ![Elliot](https://lh6.googleusercontent.com/-5ou6YDLdUrs/UN9mxtFzIOI/AAAAAAAAJg4/xG_PakqSRLc/s1011/DSC_6575.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5827489050062562385?sqi=104224507953462118663&sqsi=3f148359-9145-4848-aeb4-6ea74a092630).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5827489050062562385).

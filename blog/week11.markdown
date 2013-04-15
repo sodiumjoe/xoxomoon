@@ -23,4 +23,4 @@ And he's still keeping up with recent trends in functional programming:
 
 He also figured out a quick way to get out of tummy-time...
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5851759429680367553?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5851759429680367553).

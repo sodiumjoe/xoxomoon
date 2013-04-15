@@ -25,4 +25,4 @@ And started riding in the baby carrier facing forward:
 
 ![Forward](https://lh3.googleusercontent.com/-WyjN5iL0G9c/UVEtaDAK9YI/AAAAAAAALbs/XRfe-X__9GA/s672/P1030276.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5859514191496479217?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5859514191496479217).

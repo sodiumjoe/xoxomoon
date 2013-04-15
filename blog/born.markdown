@@ -19,4 +19,4 @@ Day 3:
 
 ![Going home](https://lh6.googleusercontent.com/-U66V-g6dBEE/UNIcPpVWthI/AAAAAAAAJCU/9wG-WF0naD0/s896/P1020941.JPG)
 
-[Full album.](https://plus.google.com/photos/109995794392976695103/albums/5823748277469274913?sqi=104224507953462118663&sqsi=3f148359-9145-4848-aeb4-6ea74a092630)
+[Full album.](https://plus.google.com/photos/109995794392976695103/albums/5823748277469274913)

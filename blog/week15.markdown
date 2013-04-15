@@ -25,4 +25,4 @@ Zeke also went to his friend Owen's first birthday party:
 
 ![Owen](https://lh4.googleusercontent.com/-RcA1wvCflOg/UVkgYEdF_2I/AAAAAAAALhI/7FNsgQrFlKE/s1011/DSC_8571.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5861751788427423233?sqi=104224507953462118663&sqsi=3f148359-9145-4848-aeb4-6ea74a092630).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5861751788427423233).

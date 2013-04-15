@@ -11,4 +11,4 @@ Zeke's already six weeks old!
 
 ![Binky](https://lh3.googleusercontent.com/-xmWza4feD18/UQoJbFoDxvI/AAAAAAAAKCg/yH5eZDpJ548/s1011/DSC_7377.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5839490040572029617?sqi=104224507953462118663&sqsi=3f148359-9145-4848-aeb4-6ea74a092630&authkey=CMyWqYT1887jmAE).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5839490040572029617).

@@ -25,4 +25,4 @@ But probably the biggest change of all was that it was Mama's first week back at
 
 ![PoPo Jenny](https://lh3.googleusercontent.com/-N5oudX9FIQU/UT7Bzm1Pc-I/AAAAAAAAKyI/27qdhY4Exlc/s1011/DSC_8061.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5854329564507381105?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5854329564507381105).

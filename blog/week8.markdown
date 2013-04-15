@@ -11,4 +11,4 @@ Just another week for Mr. Zeke.
 
 ![Smooch](https://lh6.googleusercontent.com/-a43-oXHrEPU/URiLTUttg_I/AAAAAAAAKOI/JnnRI1aGUkQ/s672/DSC_7670.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5843573297870698177?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5843573297870698177).

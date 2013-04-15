@@ -17,4 +17,4 @@ And slept through a terrarium-building workshop:
 
 ![Artemisia](https://lh4.googleusercontent.com/-FoMxbHcUAgM/USsc-MJJj-I/AAAAAAAAKe0/yxKEzYanQjw/s896/P1030188.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5848800170654135873?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5848800170654135873).

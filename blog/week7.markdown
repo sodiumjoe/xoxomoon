@@ -21,4 +21,4 @@ And Milo showed Zeke his new moves:
 
 ![Milo](https://lh4.googleusercontent.com/-J7UZ1krmU2U/URCkE-dpd9I/AAAAAAAAKFo/CZ1MpOGeDtY/s672/P1030080.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5841348792871311217?sqi=104224507953462118663&sqsi=3f148359-9145-4848-aeb4-6ea74a092630&authkey=CLuX7fvHi_y9qgE).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5841348792871311217).

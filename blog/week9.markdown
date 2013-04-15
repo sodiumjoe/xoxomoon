@@ -27,4 +27,4 @@ And also old friends from afar!
 
 ![Pine State](https://lh6.googleusercontent.com/-WdONv4URYxo/USHX0jQraCI/AAAAAAAAKSM/AJuZXV8iVAQ/s896/P1030142.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5846190316742343313?sqi=104224507953462118663&sqsi=3f148359-9145-4848-aeb4-6ea74a092630).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5846190316742343313).

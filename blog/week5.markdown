@@ -13,4 +13,4 @@ Week 5 consisted of more time spent with family and Papa's first week back at wo
 
 ![Bunny](https://lh3.googleusercontent.com/-mWdxmJGooUs/UPza5Q5S17I/AAAAAAAAJ-E/GSzdS_8BXBg/s1011/DSC_7264.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5835779616934653777?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome&authkey=CLiJ65-79oelggE).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5835779616934653777).

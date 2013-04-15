@@ -23,4 +23,4 @@ And we took our first family picture of the year.
 
 ![Team Moon](https://lh6.googleusercontent.com/-kf0_7au-8rY/UOow0IvYjlI/AAAAAAAAJmw/-EbFaJ_CF9w/s1011/DSC_6712.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5830526018987769841?sqi=104224507953462118663&sqsi=3f148359-9145-4848-aeb4-6ea74a092630&authkey=CI_js-2iuPLnzAE).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5830526018987769841).

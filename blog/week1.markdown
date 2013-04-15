@@ -29,4 +29,4 @@ and met his aunt and grandma, too.
 
 ![Auntie Joan and Grandma](https://lh5.googleusercontent.com/-KT6XBPihh-Y/UNePZJw2WII/AAAAAAAAJR0/uNvYZVO3wXg/s1011/DSC_6377.JPG)
 
-[Click here for more photos](https://plus.google.com/photos/109995794392976695103/albums/5825281918856349233?sqi=104224507953462118663&sqsi=3f148359-9145-4848-aeb4-6ea74a092630&authkey=CKyE--aXmaWM7AE).
+[Click here for more photos](https://plus.google.com/photos/109995794392976695103/albums/5825281918856349233).

@@ -23,4 +23,4 @@ And he came home with a present of his own (thanks, Milo!):
 
 ![Johnny Jump Up](https://lh3.googleusercontent.com/-ok90ONAMKhw/UWOolVeDMrI/AAAAAAAALyQ/SUhsQq-ynlo/s672/DSC_9318.JPG)
 
-[More photos](https://plus.google.com/photos/109995794392976695103/albums/5864715331082498401?utm_source=chrome_ntp_icon&utm_medium=chrome_app&utm_campaign=chrome).
+[More photos](https://plus.google.com/photos/109995794392976695103/albums/5864715331082498401).
