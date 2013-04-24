@@ -3,7 +3,7 @@ title: Week 18
 date: 4/21/2013
 ---
 
-![Week 18](https://lh6.googleusercontent.com/-dgHRaBN7nAs/UXYwKQUtunI/AAAAAAAAL98/nWV2xvSsSeI/s672/Zeek+Week+18+Graphic.jpg)
+![Week 18](https://lh3.googleusercontent.com/-dgHRaBN7nAs/UXYwKQUtunI/AAAAAAAAMFM/By8cSQEViBE/w671-h672/Zeek+Week+18+Graphic.jpg)
 
 It was another full week for Zeke.
 
