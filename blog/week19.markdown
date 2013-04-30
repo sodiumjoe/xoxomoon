@@ -5,7 +5,7 @@ date: 4/29/2013
 
 ![Week 19](https://lh5.googleusercontent.com/-qActYqzGblU/UX848-beeHI/AAAAAAAAMGE/jZNOA8ikPL0/w671-h672/Zeek+Week+19+Graphic.jpg)
 
-Zeke's starting to quite big:
+Zeke's starting to get quite big:
 
 ![Sitting](https://lh6.googleusercontent.com/-O66kios3P0Y/UX85AYfY2YI/AAAAAAAAMG4/uwndTDaBsII/w447-h672/DSC_0047.JPG)
 
