@@ -11,7 +11,7 @@ date: 6/25/2013
 
 ![Walking](https://lh6.googleusercontent.com/-mSUGoeY0gL4/Ucp1Es9j69I/AAAAAAAANM4/UV99d_hXGV0/w537-h716-no/P1030604.JPG)
 
-Zeke hasn't met a food he doesn't like yet: avacados, bananas, carrots, apples, sweet potatoes, oatmeal cereal, broccoli, nectarines, and his favorite, Baby Mum-Mums.
+Zeke hasn't met a food he doesn't like yet: avocados, bananas, carrots, apples, sweet potatoes, oatmeal cereal, broccoli, nectarines, and his favorite, Baby Mum-Mums.
 
 ![Food](https://lh5.googleusercontent.com/-AP-FtIfS-2Y/Ucp1GfU7-yI/AAAAAAAANNg/7TDYGmywkfQ/w1077-h716-no/DSC_1100.JPG)
 
