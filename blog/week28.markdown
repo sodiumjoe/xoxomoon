@@ -5,7 +5,7 @@ date: 7/2/2013
 
 ![Week 28](https://lh6.googleusercontent.com/-xBgJcWgqj1o/UdO315GlZUI/AAAAAAAANYM/IwjcOEIO_Sw/w715-h716-no/Zeek+Week+28+Graphic.jpg)
 
-It was time for Zeke's six month check up:
+It was time for Zeke's six-month checkup:
 
 ![Dr. Schwab](https://lh6.googleusercontent.com/-vVefISz17ak/UdO327NJRiI/AAAAAAAANY0/w7zDPupmdgE/w537-h716-no/IMG_2079.jpg)
 
