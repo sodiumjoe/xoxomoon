@@ -25,7 +25,7 @@ Summer in Portland means lots of picnics:
 
 And playing in the park fountain:
 
-![Jamison Square Park](https://lh4.googleusercontent.com/-tW0NJldxtsI/UdO4CXLrPYI/AAAAAAAANa8/W06BGTdyx4E/w476-h716-no/DSC_1230.JPG)o
+![Jamison Square Park](https://lh4.googleusercontent.com/-tW0NJldxtsI/UdO4CXLrPYI/AAAAAAAANa8/W06BGTdyx4E/w476-h716-no/DSC_1230.JPG)
 
 And popsicles:
 
